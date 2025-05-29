@@ -8,7 +8,7 @@ I really open for every occassion to learn about something new!
 Go check my resume >> [CV](https://drive.google.com/file/d/14gpR0BGxm9WTavAJkATRKV3acVF-0Z03/view?usp=sharing)
 
 - 📫 How to reach me: 
-  - [Email-2](mailto:alyazhar.agh@gmail.com)
+  - [Email](mailto:alyazhar.agh@gmail.com)
   - [LinkedIn](https://www.linkedin.com/in/alyazharr/)
 
 Let's connect and learn together!😀
