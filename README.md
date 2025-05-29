@@ -5,10 +5,9 @@ I'm a Computer Science graduate from Universitas Indonesia.
   
 I really open for every occassion to learn about something new!
 
-Go check my resume >> [CV](https://drive.google.com/file/d/14s38m5D8sSNAgo4VVZNsVDzrC-xwbWWJ/view?usp=drive_link)
+Go check my resume >> [CV](https://drive.google.com/file/d/14gpR0BGxm9WTavAJkATRKV3acVF-0Z03/view?usp=sharing)
 
 - 📫 How to reach me: 
-  - [Email-1](mailto:alya.azhar@ui.ac.id)
   - [Email-2](mailto:alyazhar.agh@gmail.com)
   - [LinkedIn](https://www.linkedin.com/in/alyazharr/)
 
